@@ -1,0 +1,1 @@
+# Exploration of the International Personality Item Pool Cattell's 16 Personality factors Test
